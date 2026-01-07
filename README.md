@@ -17,4 +17,4 @@ I work across the full development lifecycle — from designing modern user inte
 💬 I enjoy writing clean code, solving complex problems, and building systems that scale reliably.
 
 🔗 Professional profile:  
-[LinkedIn – star-Elmi](https://www.linkedin.com/in/star-Elmi)
+[LinkedIn – star-Elmi](https://www.linkedin.com/in/istar-mohamed-940607300/)
